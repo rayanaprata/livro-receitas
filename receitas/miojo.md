@@ -4,6 +4,7 @@
 ## Ingredientes
 
 - 1 pacote de macarrão instantâneo de galinha caiprira
+- Água
 
 ## Modo de Preparo
 
